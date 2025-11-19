@@ -1,0 +1,2 @@
+minefun.io
+hack
